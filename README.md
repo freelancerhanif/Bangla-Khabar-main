@@ -1,0 +1,2 @@
+# Bangla-Khabar
+Bangla Food Item Eat, Healthy With Bangla Food. Available Here Eating Protein Foods. The restaurant is neat and clean, and food is served fresh. A wide range of Vortas are available in the menu. Vortas like chicken vorta, Taki fish vorta, Chingri/Prawn vorta, Elish vorta, tomato/papaya/eggplant vorta, Badam vorta and lots other are available. Out of all these, the chingri vorta and the Loitta Shutki vorta are most popular. Once you have these vortas, you will forever remember the taste and you will be left wanting more.
